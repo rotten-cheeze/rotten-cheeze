@@ -2,6 +2,6 @@
 
 <img src=https://64.media.tumblr.com/63e9bc068c3b73b2d5b0b71e0e9409e0/b0e38ec1fa34f725-df/s100x200/278288ffa0109125785467cc5df51616ea2ad8ec.gifv width=32 height=32> hey brah im cheeze. i like cheese! if you couldnt tell. oh and looey too ig. 🙄
 
-im usually always free to interact!!!! though im a bit awkward especially with new people sorry bout that (i dont bite trust)
+im usually always free to interact!!!! though im a bit awkward especially with new people, sorry bout that (i dont bite trust)
 
-check out sp for more info.... sign my stuff too if you want heh
+check out sp for more info.... sign my stuff too if you want lala
